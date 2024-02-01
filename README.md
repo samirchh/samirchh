@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning bachelor's degree in computer science and information technology
 - 💞️ I’m looking to collaborate on 
 - 📫 mail me at sameerchhetri2060@gmail.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: no idea about it !!
 
 <!---
 samirchh/samirchh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
