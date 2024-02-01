@@ -2,7 +2,7 @@
 - 👀 I’m interested in field if information technology
 - 🌱 I’m currently learning bachelor's degree in computer science and information technology
 - 💞️ I’m looking to collaborate on 
-- 📫 mail me at sameerchhetri@gmail.com
+- 📫 mail me at sameerchhetri2060@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
